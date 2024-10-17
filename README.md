@@ -13,7 +13,7 @@
 ## Professional Experience
 
 ### Rice Housing and Dining - Social Media & Web Coordinator  
-- Optimized web content, boosting user engagement by 25% and traffic by **30%** through SEO strategies.
+- Optimized web content, boosting user engagement by 25% and traffic by 30% through SEO strategies.
 - Developed social media campaigns that resulted in a 35% growth in followers.
 
 ### LIStartup- Product Management Intern  
